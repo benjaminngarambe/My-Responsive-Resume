@@ -1,3 +1,3 @@
 # Responsive-resume
-Once host4ed online I will put the link Here. 
+Once I host it I will provide it's link Here 
 :)
